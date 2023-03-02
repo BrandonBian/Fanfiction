@@ -1,4 +1,4 @@
-# Chapter 0: Descending into the Unknown
+# Chapter 1: The Prologue
 
 ## Chapter Summary:
 The chapter begins with an introduction to the mysterious and dangerous world of the Abyss, as seen through the eyes of the orphaned girl Riko. After discovering a strange robot boy named Reg, Riko sets out on a perilous journey with him into the Abyss, encountering various challenges and allies along the way, including the legendary White Whistle Ozen, the Narehate village of Irumyuui, and the powerful and enigmatic Faputa. As they venture deeper into the Abyss, Riko, Reg, Nanachi, and Faputa face new dangers and challenges, but also uncover new secrets and wonders. The chapter ends with the team setting out on a new journey into the unknown, eager to uncover the secrets and mysteries of the Abyss.

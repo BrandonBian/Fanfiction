@@ -1,0 +1,5 @@
+
+---
+
+"Wow, Nanachi, have you ever seen anything like this?" Riko asked in amazement as she gazed upon the strange, otherworldly sights that surrounded her. The fossilized buildings of what seemed like ancient relics poked out in every direction, stretching up and up as if they would never end. The ground beneath her feet was made of what appeared to be stones of different colors, blended together like a river of mixed colors. And amidst it all, Riko could see strange, otherworldly creatures roaming and floating and flying through and within the fossilized buildings of ancient civilizations. There were Hermit Rats scurrying around the group, curious in nature but quick to bite if provoked. And looming in the far distance were the Turbinid-Dragons, towering beasts that were as deadly as an entire swarm of Amaranthine-Deceptors. Riko couldn't help but feel a sense of awe and excitement as she gazed upon these creatures and their exotic surroundings. "This is incredible," she breathed, her eyes sparkling with curiosity and wonder. "I never imagined anything like this could exist."
+
